@@ -8,7 +8,7 @@
 
 ⋆ Meu nome e Milena
 
-⋆ Tenho 17 anos 
+⋆ Tenho 16 anos 
 
 ⋆ Gosto do Garfield
 
